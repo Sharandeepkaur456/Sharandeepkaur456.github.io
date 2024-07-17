@@ -1,17 +1,37 @@
-# Sharandeepkaur456.github.io
+**My Protofile**
 
-My Family 
+**Profile**:- Sharandeep kaur
 
-![IMG-20240517-WA0015](https://github.com/user-attachments/assets/2a65c030-8dc8-4090-a082-2abbdb9a250b)
+![IMG-20240716-WA0019 1](https://github.com/user-attachments/assets/d1acf571-d30b-488f-bce9-39882a0a297d)
 
-![IMG-20240716-WA0018 1](https://github.com/user-attachments/assets/b78e1c35-b26c-4abc-b9b0-572db89ee61d)
+**Class 12th details**
 
-![IMG-20240716-WA0025 1](https://github.com/user-attachments/assets/4b233cf5-a8ee-4f06-9c19-5458d561092e)
+|  Subject |  Max Marks |  Obtained Marks |  
+|---|---|---|
+| Physics  |  100 |  77 |  
+| Chemistry  | 100  | 92  |  
+|  Maths |100   | 75  |   
+| English  |  100 | 88  |  
+| Punjabi  | 100  |95   |  
 
-![IMG-20240716-WA0021 2](https://github.com/user-attachments/assets/88208c5e-d457-46c9-9904-1f6122cccbfd)
+**Activity Report Student Induction Program 2024**
 
-![IMG-20240716-WA0022 1](https://github.com/user-attachments/assets/63d2e72f-8b06-47db-bb8f-f8f293635eb6)
+**Day 1**
 
-![IMG-20240716-WA0020 1](https://github.com/user-attachments/assets/cfbcf414-e68f-4ac8-94c5-c7529725386f)
+Today was the first day of our college journey at Guru Nanak Dev Engineering College. We started or day by praying at college Gurudwara Sahib which was a cherry on cake for our first day of college. Today various faculty members including old principle sir of Guru Nanak Dev Engineering College who was also an alumnus of the same college encouraged us on the first day of our college with their words of wisdom and give an important message “no tension and full attention”. Various other alumni also share there invaluable experience with the freshers in which they made us aware about various mistakes that they and there college mates had done at the time of their own college. In a nutshell be completely enjoyed are first day of our college journey by gaining fruitful knowledge.
 
-![IMG-20240716-WA0026 1](https://github.com/user-attachments/assets/c5391260-5901-4375-b763-0ae77e658ec4)
+**Day 2**
+
+Today we came to know more about our Guru Nanak Dev Engineering College. Our professors gave us detailed information about GNDEC and also motivated us at the same time. They told us about various National and International societies and clubs going on in the college, number of canteens and playgrounds in the college, activities going on in college, Hostel facilities, certain upcoming activities etc. Here we also came to know about various scholarships schemes that our college offers . And all this was explained through interesting PPTs which made it way more interesting.
+
+**Day3**
+
+Today we have learn about the Universal human values which should tell us about ethics and Natural acceptance and also learn the peer introduction about the website. we learn how to calculate the marks of exams.
+
+ **Day 4** 
+ 
+Today we have taken a tour of depatment of IT and also see the labs.
+
+**Day 5**
+
+Today we learn about UHV human values about family and peer interaction aboyt technies. In which we learn the syntax of Excel and also about chatgpt.
