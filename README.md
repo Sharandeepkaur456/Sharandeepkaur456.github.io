@@ -28,10 +28,18 @@ Today we came to know more about our Guru Nanak Dev Engineering College. Our pro
 
 Today we have learn about the Universal human values which should tell us about ethics and Natural acceptance and also learn the peer introduction about the website. we learn how to calculate the marks of exams.
 
- **Day 4** 
+**Day 4**
+
+Today The first speaker payaree lal Garg tell us about the general knowledge which is very nice.The second speaker tell us the formula 1 2 ka 4. and The third speeker Mr.Pancham tell us about the body language and also about the achievements of mechanical engineering which is really impressive 
+
+ **Day 5** 
  
 Today we have taken a tour of depatment of IT and also see the labs.
 
-**Day 5**
+**Day 6**
 
 Today we learn about UHV human values about family and peer interaction aboyt technies. In which we learn the syntax of Excel and also about chatgpt.
+
+**Day 7**
+
+Today first we go to auditorium and the first speeker Pf.Harpal Singh Pannu tell us our history and also tell us about The Guru Nanak sakhi which is very interesting and impressive. Next we go the class room and attend the UHV lecture which is also interesting. after two lecture there is a break and then again go to the auditorium to attend the lecture of NCC and NSS. After this we attend the doubt session. After doubt session our day has been finished in the college.
