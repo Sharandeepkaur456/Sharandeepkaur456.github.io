@@ -42,10 +42,8 @@ Today we learn about UHV human values about family and peer interaction aboyt te
 
 **Day 7**
 
-Today we lea
-
 Today first we go to auditorium and the first speeker Pf.Harpal Singh Pannu tell us our history and also tell us about The Guru Nanak sakhi which is very interesting and impressive. Next we go the class room and attend the UHV lecture which is also interesting. after two lecture there is a break and then again go to the auditorium to attend the lecture of NCC and NSS. After this we attend the doubt session. After doubt session our day has been finished in the college.
 
 **Day 8**
 
-Today we first go to the auditorium. The first speeker Karmandeep kalra give us knowledge about interview and also tell us how to success in life. The second speeker Jaswinder Singh tell us about the Mathematics which is the key of our life and also tell us about Science which is very interesting and amazing we enjoy it so much. Our next and third lecture is English Activity which is very amazing. After this we have presentation on the topic of pandoc which is done with after some problems. After this our today college day complete.
+Today we first go to the auditorium. The first speeker Karmandeep kalra give us knowledge about interview and also tell us how to success in life. The second speeker Jaswinder Singh tell us about the Mathematics which is the key of our life and also tell us about Science which is very interesting and amazing we enjoy it so much. Our next and third lecture is English Activity which is very amazing. After this we have presentation on the topic of pandoc which is done with after some problems. After this our today college day was completed.
