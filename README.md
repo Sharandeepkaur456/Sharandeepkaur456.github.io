@@ -98,3 +98,7 @@ Holistic Development : GNDEC emphasizes a balance between academic knowledge, te
 Networking and Communication : The importance of building a network and honing communication skills was highlighted as crucial for success in both academic and professional settings.
 Values in Relationships : Understanding and fostering values like trust, respect, and care are seen as foundational for healthy interpersonal relationships.
 Continuous Learning: The program underscored the need for lifelong learning, adaptability, and staying updated with the latest technological advancements.
+
+**Excel Certificate**
+
+![b9bb586c2c5371b331f82264624f91f1db894c68 1](https://github.com/user-attachments/assets/52f088f9-46aa-4de0-ad09-27b6133016a1)
